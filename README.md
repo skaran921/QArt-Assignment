@@ -1,1 +1,0 @@
-# QArt-Assignment
